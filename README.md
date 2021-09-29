@@ -23,3 +23,5 @@ I am focused on adding real value to our client's portfolio.
 Our belief is clear that if we focus on client's success we are automatically successful.
 Hope to work for great people and making them happy through my work and that is my sole priority to bring smiles to the people who choose me and give me the opportunity to serve them with my skills.
 I can start to work right now and I am available 24/7.
+
+hahahacom828@outlook.com
